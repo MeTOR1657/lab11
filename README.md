@@ -1,2 +1,2 @@
-# NAME:
-# STUDENT ID:
+# NAME:ต่อตระกูล แสงสุวรรณ์
+# STUDENT ID:670610800
